@@ -22,7 +22,7 @@ Sorang yang berminat dalam bidang pembangunan perisian dan teknologi. Saya baru 
 
 ### 📫 Hubungi Saya
 - **LinkedIn:** [Eiza Nur Damia](#)
-- **Email:** eiza@example.com
+- **Email:** eizanurdamia@graduate.utm.my
 
 ---
 
